@@ -1,4 +1,4 @@
-
+Enhance your Private Internet Access (PIA) experience with advanced Private Internet Access (PIA) Connector | dedicated-IP + P2P-support, the #1 connector. Includes dedicated-IP
 
 
 
